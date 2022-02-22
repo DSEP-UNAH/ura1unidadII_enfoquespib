@@ -1,4 +1,4 @@
-URA 2 Unidad II Asignatura Economía para Maestría en DIrección de Proyectos
+URA 2 Unidad II Economía para Maestría en DIrección de Proyectos
 
 Enfoques para el cálculo del PIB
 
